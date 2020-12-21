@@ -1,5 +1,5 @@
 
-# Grouth mindset:
+# Grouth Mindset:
   It's away to improve your creativity and to a chieve your goals by get your mind out of the fixed mind
 
 ![Diffrence between fixed and grouth mindset](https://www.sdiclarity.com/wp-content/uploads/2019/01/growth-5c-20vs-_35489972-629x1024.png)

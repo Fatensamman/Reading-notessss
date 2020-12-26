@@ -12,6 +12,7 @@
   * Be jealous from other's success
   
   ![grouth mindset](https://i.ytimg.com/vi/YG4t8SGQsvA/maxresdefault.jpg)
+  & hii helloow 
   
 ### About:
 my name is **Faten Samman** I'm 27 years old I have a bachelor degree in architecture from University of Jordan , I like programming from the softwares which I use in my work field, so I wish learn more about it :heart:
